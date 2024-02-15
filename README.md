@@ -1,0 +1,1 @@
+# schoolprojects2024.github.io
